@@ -1,4 +1,9 @@
-## Hi there 👋
+## HELLO HI!! <img width="284" height="369" alt="Screenshot (1)" src="https://github.com/user-attachments/assets/8531ab91-2dbd-4c11-9517-eb220ed4ecf9" />
+<img width="1516" height="863" alt="Screenshot 2026-10-25 202955" src="https://github.com/user-attachments/assets/ba112090-b37f-4ab3-80da-dfed1e6bed07" />
+
+
+
+
 
 <!--
 **Stars4Nights0/Stars4Nights0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
