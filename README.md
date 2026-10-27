@@ -1,4 +1,5 @@
-## HELLO HI!! This is Pudding speaking about my boundaries! I do not like when others self-promote themselves, I do not like it when others try to guilt trip me into thinking i was the one in the wrong and I do not like when others try and make their trauma a competition.
+## HELLO HI!!
+ This is Pudding speaking about my boundaries! I do not like when others self-promote themselves, I do not like it when others try to guilt trip me into thinking i was the one in the wrong and I do not like when others try and make their trauma a competition.
 
 DNI: Proshipping, darkshipping, ex-friends, hate on others interests (depends on what it is), disrespecting others, racist, toxic shippers, preds and horny freaks.
 Other than that, feel free to int!
@@ -13,6 +14,7 @@ I am rlly friendly so please dont be shy to int!
 
 
  
+<img width="291" height="287" alt="Screenshot 2026-10-27 165342" src="https://github.com/user-attachments/assets/0deeb85d-a226-4e56-93a2-b355fa3ddc9c" />
 
 
 <!--
