@@ -14,7 +14,9 @@ I am rlly friendly so please dont be shy to int!
 
 
  
-<img width="291" height="287" alt="Screenshot 2026-10-27 165342" src="https://github.com/user-attachments/assets/0deeb85d-a226-4e56-93a2-b355fa3ddc9c" />
+<img width="291" height="287" alt="Screenshot 2026-10-27 165342" src="https://github.com/user-attachments/assets/0deeb85d-a226-4e56-93a2-b355fa3ddc9c" /><img width="257" height="273" alt="Screenshot 2026-10-27 165923" src="https://github.com/user-attachments/assets/ee619e5c-0f33-4487-9a3a-9ab3bdb68498" />
+<img width="261" height="257" alt="Screenshot 2026-10-27 165822" src="https://github.com/user-attachments/assets/66522dee-7190-4ba7-9916-854a5c8e70e3" />
+
 
 
 <!--
