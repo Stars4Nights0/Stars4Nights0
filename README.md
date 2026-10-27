@@ -15,7 +15,7 @@ I am rlly friendly so please dont be shy to int!
 
  
 <img width="291" height="287" alt="Screenshot 2026-10-27 165342" src="https://github.com/user-attachments/assets/0deeb85d-a226-4e56-93a2-b355fa3ddc9c" />
-<img width="261" height="257" alt="Screenshot 2026-10-27 165822" src="https://github.com/user-attachments/assets/be5bf52d-81fd-4509-af8e-83bd83e05f0f" />
+
 
 
 
