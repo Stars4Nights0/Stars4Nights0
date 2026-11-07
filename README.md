@@ -1,4 +1,4 @@
-## HELLO HI!!
+## HELLO HI!! HERES MY RULES FOR ME
  This is Pudding speaking about my boundaries! I do not like when others self-promote themselves, I do not like it when others try to guilt trip me into thinking i was the one in the wrong and I do not like when others try and make their trauma a competition.
 
 DNI: Proshipping, darkshipping, ex-friends, hate on others interests (depends on what it is), disrespecting others, racist, toxic shippers, preds and horny freaks.
