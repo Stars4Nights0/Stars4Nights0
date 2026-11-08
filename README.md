@@ -11,7 +11,7 @@ I do have a partner and I love him sm !!
 @lunarpools is ONE of my closest friend
 
 
-                                                               OK BUHBAII!!
+                                                               
 
                                                                
 <img width="1516" height="863" alt="Screenshot 2026-10-25 202955" src="https://github.com/user-attachments/assets/ba112090-b37f-4ab3-80da-dfed1e6bed07" />
