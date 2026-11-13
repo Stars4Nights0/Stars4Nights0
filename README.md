@@ -18,7 +18,7 @@ I do have a partner and I love him sm !!
 
 
  
-<img width="291" height="287" alt="Screenshot 2026-10-27 165342" src="https://github.com/user-attachments/assets/0deeb85d-a226-4e56-93a2-b355fa3ddc9c" />
+
 
 
 
